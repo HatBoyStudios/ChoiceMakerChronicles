@@ -8,4 +8,4 @@ Stats: TBD
 
 # The Observer
 
-Bio: the observer of the entire multiverse, a being of pure cosmic energy, but even he fears what may become of this world.
+Bio: The all seeing being, The Observer watches over every aspect of the multiverse and is concerned about the unsteady growth of all of time and space, he fears what your outcome may be.
